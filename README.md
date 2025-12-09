@@ -1,1 +1,1 @@
-# Infosys-Internship--Silarapu-Pravallika-
+# Infosys-Internship-AI-Silarapu-Pravallika-
